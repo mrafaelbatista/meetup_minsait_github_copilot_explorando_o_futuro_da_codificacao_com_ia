@@ -1,0 +1,1 @@
+# meetup_minsait_github_copilot_explorando_o_futuro_da_codificacao_com_ia
